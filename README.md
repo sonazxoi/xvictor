@@ -1,5 +1,5 @@
 # xvict
-Maybe somei somhi
+Maybe somei soi
 Versionv
 V]povjhuhvy
 6
