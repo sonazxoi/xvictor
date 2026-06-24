@@ -1,7 +1,7 @@
 # xvict
 Maybe somei soi
 Versionv
-V]povjhuhvy
+V]povjh
 6
 Version 8
 Version 9
