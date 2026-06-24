@@ -1,7 +1,7 @@
 # xvictor
 Maybe somethi something new 
 Versionvhci
-V]povjhuhvyo;v
+V]povjhuhvy
 6
 V
 Version 8
