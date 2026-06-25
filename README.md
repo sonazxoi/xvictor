@@ -1,7 +1,7 @@
 # xvict
 Maybe somei 
 Versi
-V]pov
+V]p
 Ve
 Ver
 Versiooihv
