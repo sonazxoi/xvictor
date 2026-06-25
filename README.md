@@ -2,7 +2,6 @@
 Maybe somei 
 Versio
 V]povjh
-6
 Version
 Version
 Versiooihvhijvc
