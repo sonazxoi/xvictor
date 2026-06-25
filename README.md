@@ -1,6 +1,6 @@
 # xvict
 Maybe somei 
-Versio
+Versi
 V]pov
 Ve
 Versio
